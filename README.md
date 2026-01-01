@@ -68,7 +68,7 @@ Feel free to fork the repository and experiment.
 📬 Contact
 
 For workshops, collaborations, or queries:
-📧 [Add your email or social link here]
+📧 syedanasquadri321@gmail.com
 
 ⭐ Support
 
